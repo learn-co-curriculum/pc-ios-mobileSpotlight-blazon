@@ -12,4 +12,4 @@ Blazon is truly an example of using mobile technology to create a better world.
 
 https://play.google.com/store/apps/details?id=charlyn23.c4q.nyc.projectx
 
-(The Blazon Team [https://pbs.twimg.com/media/CPDsPyXUEAAn8g8.jpg]!
+![The Blazon Team] (https://pbs.twimg.com/media/CPDsPyXUEAAn8g8.jpg)
