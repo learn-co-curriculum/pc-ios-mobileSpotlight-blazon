@@ -2,7 +2,7 @@
 
 ##Blazon 
 
-![blazon2](https://lh3.googleusercontent.com/8es4XqTVIPd2txURs0Od3y88DkxffUsgCvuV4bYB8ZibH7EaoRjhhCaXGafnKxx6eSs=h310-rw)![Blazon](https://lh3.googleusercontent.com/aJFfIL7ILPRZFP58deRimSGNXjG6aItGZO9mY1jSxtTaJ7CGKrxBHcoC1ttB0CKH0fR5=h310-rw)![blazon3](https://lh3.googleusercontent.com/PwD2WzohTxvoO4u01cbfRyiDBci2Eacmn27xp4O0IAnUyE01VWkNdbJ1XVQ7msIxRPM=h310-rw)![blazon4](https://lh3.googleusercontent.com/ZE0rHUkpBhhbReV7PAIMqBr-CaQGXofJJ0D9g1S_Gs0NalMXMOza8dc5_2vvLjTB=h900-rw =516X140) ![blazon5] (https://lh3.googleusercontent.com/07o_qSZ00uVnvVvEZwU9NRsGt3DWgaNh-H8GhXhenzVyy_kEduBerKOEkfiJ0gghiQ=h900-rw) ![blazon6] (https://lh3.googleusercontent.com/Rb0vauhTjZ2kT6pdrnOwVlzpN83yPG-Xz55HSiDdjDX4djOH5RWuIcpVghaMQ6DweTg=h900-rw)
+![blazon2](https://lh3.googleusercontent.com/8es4XqTVIPd2txURs0Od3y88DkxffUsgCvuV4bYB8ZibH7EaoRjhhCaXGafnKxx6eSs=h310-rw)![Blazon](https://lh3.googleusercontent.com/aJFfIL7ILPRZFP58deRimSGNXjG6aItGZO9mY1jSxtTaJ7CGKrxBHcoC1ttB0CKH0fR5=h310-rw)![blazon3](https://lh3.googleusercontent.com/PwD2WzohTxvoO4u01cbfRyiDBci2Eacmn27xp4O0IAnUyE01VWkNdbJ1XVQ7msIxRPM=h310-rw)![blazon4](https://lh3.googleusercontent.com/ZE0rHUkpBhhbReV7PAIMqBr-CaQGXofJJ0D9g1S_Gs0NalMXMOza8dc5_2vvLjTB=h900-rw =516X140) ![blazon5] (https://lh3.googleusercontent.com/07o_qSZ00uVnvVvEZwU9NRsGt3DWgaNh-H8GhXhenzVyy_kEduBerKOEkfiJ0gghiQ=h900-rw =516x140) ![blazon6] (https://lh3.googleusercontent.com/Rb0vauhTjZ2kT6pdrnOwVlzpN83yPG-Xz55HSiDdjDX4djOH5RWuIcpVghaMQ6DweTg=h900-rw)
 
 Blazon was created to help document and deter street harrassment.  Every day, women, people of color, and other minority groups face harrassment, verbal abuse, or threats or even acts oh physical violence, simply because of who they are.
 
