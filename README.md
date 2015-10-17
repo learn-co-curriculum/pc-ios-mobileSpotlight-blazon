@@ -2,7 +2,7 @@
 
 ##Blazon 
 
-![Blazon](https://lh3.googleusercontent.com/aJFfIL7ILPRZFP58deRimSGNXjG6aItGZO9mY1jSxtTaJ7CGKrxBHcoC1ttB0CKH0fR5=h310-rw)(https://lh3.googleusercontent.com/8es4XqTVIPd2txURs0Od3y88DkxffUsgCvuV4bYB8ZibH7EaoRjhhCaXGafnKxx6eSs=h310-rw)
+![Blazon](https://lh3.googleusercontent.com/aJFfIL7ILPRZFP58deRimSGNXjG6aItGZO9mY1jSxtTaJ7CGKrxBHcoC1ttB0CKH0fR5=h310-rw)![blazon2](https://lh3.googleusercontent.com/8es4XqTVIPd2txURs0Od3y88DkxffUsgCvuV4bYB8ZibH7EaoRjhhCaXGafnKxx6eSs=h310-rw)
 
 Blazon was created to help document and deter street harrassment.  Every day, women, people of color, and other minority groups face harrassment, verbal abuse, or threats or even acts oh physical violence, simply because of who they are.
 
